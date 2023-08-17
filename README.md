@@ -1,4 +1,6 @@
-# BOAS VINDAS AO MEU PERFIL ![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
+# BOAS VINDAS AO MEU PERFIL
+
+![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
 
 - 👋 Olá!! Meu é Ana Paula Soares❤️
 - 👀 Estou estudando na plataforma [Alura](https//www.alura.com.br)  ...
