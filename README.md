@@ -2,7 +2,7 @@
 
 ![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
 
-- 👋 Olá!! Meu nome é Ana Paula Soares❤️
+- 👋 # Olá!! Meu nome é Ana Paula Soares!!!❤️
 -  # Sejam Bem vindos !!!!!
 - 👀 Estou estudando na plataforma [Alura](https://www.alura.com.br)  ...
 - 🌱 Estou utilizando esse espaço para minha organização e de meus projetos ...
