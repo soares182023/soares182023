@@ -2,7 +2,6 @@
 
 ![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
 
-![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
 
 - 👋 # Olá!! Meu nome é Ana Paula Soares!!!❤️❤️
 -  # Sejam Bem vindos !!!!!
@@ -14,5 +13,7 @@
 ![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-yellow-power-ranger.gif)
 
 
-![](https://media.tenor.com/wciT7jbJwNEAAAAi/anime-gaming.gif)
+![](https://media.tenor.com/wciT7jbJwNEAAAAi/anime-gaming.gif) 
+
+![](https://tenor.com/pt-BR/view/ernie-sesame-street-smh-shaking-my-head-dismay-gif-18210872)
 
