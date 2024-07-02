@@ -15,5 +15,5 @@
 
 ![](https://media.tenor.com/wciT7jbJwNEAAAAi/anime-gaming.gif) 
 
-![](https://tenor.com/pt-BR/view/ernie-sesame-street-smh-shaking-my-head-dismay-gif-18210872)
+![](https://media.tenor.com/wciT7jbJwNEAAAAi/anime-gaming.gif)
 
