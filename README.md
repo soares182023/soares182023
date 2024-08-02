@@ -12,7 +12,6 @@
 
 ![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-yellow-power-ranger.gif)
 
-
 ![](https://media.tenor.com/wciT7jbJwNEAAAAi/anime-gaming.gif) 
 
 ![](https://tenor.com/pt-BR/view/medium-beth-dutton-kelly-reilly-yellowstone-average-gif-17784596)
