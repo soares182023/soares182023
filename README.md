@@ -2,6 +2,8 @@
 
 ![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/red-heart-heart.gif)
 
+![] (https://media1.tenor.com/m/PKxA4Hq_PcQAAAAC/blow-kiss-emoji.gif).
+
 
 - 👋 # Olá!! Meu nome é Ana Paula Soares!!!❤️❤️
 -  # Sejam Bem vindos !!!!!
